@@ -31,3 +31,7 @@ SAKINDER ALI KEYS
 ."HOPE is not PATIENCE but collection of doubtless facts which either converge to a focus point or diverge away from a point."
 
 ."PATIENCE is not HOPE but collection of doubtless facts which either converge to a focus point or diverge away from a point."
+
+"collection of SA KINDALI"
+
+"collection of SAKINDER ALI"
